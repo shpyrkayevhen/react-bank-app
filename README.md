@@ -5,5 +5,5 @@
 ![Bank Aplication](https://i.ibb.co/KsNkr8h/4.png)
 ![Bank Aplication](https://i.ibb.co/5RNZgyQ/5.png)
 ![Bank Aplication](https://i.ibb.co/DzLCcZk/6.png)
-![Bank Aplication](https://i.ibb.co/CnJs4Fg/7.png)
+![Bank Aplication](https://i.ibb.co/D1x8wnr/7.png)
 
